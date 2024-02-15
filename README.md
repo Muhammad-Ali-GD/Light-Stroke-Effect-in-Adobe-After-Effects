@@ -1,0 +1,1 @@
+# Light-Stroke-Effect-in-Adobe-After-Effects
